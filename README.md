@@ -1,2 +1,4 @@
-# Enc-Emoji
-Enc Emoji
+````
+Enc-Emoji
+SUBSCRIBE YA SAYANG
+````
